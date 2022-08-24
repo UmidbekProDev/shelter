@@ -1,1 +1,24 @@
 # Davay loyihani bashlimiz balajonla
+asd
+asd
+sd
+s
+d
+sd
+s
+d
+sd
+s
+d
+s
+ds
+d
+dsasf
+a
+sdf
+a
+sd
+fr
+dasf
+das
+fadsf
