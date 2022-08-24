@@ -1,1 +1,1 @@
-# Davay loyihani bashlimiz balla
+# Davay loyihani bashlimiz balajonla
